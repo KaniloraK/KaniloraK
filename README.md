@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @KaniloraK
-- 👀 I’m interested in ecofriendly choices, plants, pets and travels
+- 👋 Hi, I’m Karol
+- 👀 I’m interested in ecofriendly choices, hydrogen cars, plants, pets and travels :)
 
 
 <!---
